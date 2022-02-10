@@ -5,5 +5,5 @@
 <br/> 
 📫 How to reach me:
 
-insta) @h_jiin._.98  
+insta) @h_jiin._.o0  
 blog) https://velog.io/@jinyjib
