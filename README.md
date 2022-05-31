@@ -10,7 +10,7 @@
 
 📫 How to reach me:
 
-insta) @h_jiin._.o0
+insta) @jiin._.o0
 
 email) hyungjin1014@gmail.com
 
